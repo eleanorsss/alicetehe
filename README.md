@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alicetehe
+- 👀 I’m interested in art coding fun stuff
+- 🌱 I’m currently learning vb and in the future html web coding
+- 💞️ I’m looking to collaborate on nothing but feel free to message me 
+- 📫 How to reach me: message me for my email
